@@ -105,8 +105,8 @@
 2. **Tak Ice Cream Corner** (Bentong)  
    Good ice cream place in Bentong. Not too expensive and a lot of choices to choose from.
 
-**Trylist:**
-- Kwong Wah Ais Kacang (Kuchai Lama)
+3. **Kwong Wah Ais Kacang**
+   Saw JBS went here and tried it. Their ABC Gula Melaka is dope. Tried rojak too, its good ngl, but too bad I'm picky and only some of the fruits. Price is a little expensive but overall, the place is decent. Not a place I would come everyday though.
 
 ## Pan Mee
 
